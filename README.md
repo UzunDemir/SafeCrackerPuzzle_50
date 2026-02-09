@@ -1,5 +1,9 @@
 # 🧩 Safe Cracker 50: The "Broken Reality" Case
 
+![5190507774842966279](https://github.com/user-attachments/assets/051a8638-3f1e-4787-b7e1-d5d11ed5accd)
+
+
+
 ## 🇷🇺 README (Russian)
 
 ### Обзор
